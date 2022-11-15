@@ -9,6 +9,6 @@
 ## Где меня можно найти
 Меня можно найти в [vk](https://vk.com/kbiggy), [GitHub](https://github.com/Nikolaytcev).
 
-### А это я
+### А это я (в очках;))
 
 ![photo](https://sun9-26.userapi.com/impf/aXuFrrFrhzB9zylA8qoojZMRv2kXnvYZFtJEVQ/kz8m1u2Tgfg.jpg?size=738x741&quality=96&sign=97d6c3d2d85c8ccd429cfeaed9e6b26e&type=album)
